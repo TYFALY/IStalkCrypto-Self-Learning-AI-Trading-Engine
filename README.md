@@ -1,0 +1,1 @@
+# IStalkCrypto-Self-Learning-AI-Trading-Engine
